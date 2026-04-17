@@ -1,7 +1,7 @@
 # WBDV111_MidtermLavExam-Gio-San-Captures-and-Prints-Co.
 
 Lopez, Chester James F.
-Salcedo, Marco Antonio
+Salcedo, Marco Antonio O.
 Arao, Loudiex Jay A.
 Navarro, Kevin
 
