@@ -3,7 +3,7 @@
 Lopez, Chester James F.
 Salcedo, Marco Antonio O.
 Arao, Loudiex Jay A.
-Navarro, Kevin
+Navarro, Kevin ryan A.
 
 BSIT 1-y2-4 
 
